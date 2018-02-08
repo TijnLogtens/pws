@@ -1,6 +1,6 @@
 # Snek AI
 
  
-![alt text](https://images-cdn.9gag.com/photo/awQDyMB_460s.jpg "He play snek")                                                                       
+![alt text](https://i.imgur.com/R0R7SE1.png "He play snek")                                                                       
                                                     
                                                     
